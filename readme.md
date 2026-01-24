@@ -1,16 +1,16 @@
-# 光速云(LightSpeed)官网注册地址｜真实测速｜价格与套餐详解
+# 光速云(LightSpeed)VPN官网注册地址｜真实测速｜价格与套餐详解
 
 ![光速云(LightSpeed)OG =488x](https://i.theojs.cn/logo/lightspeed_banner2.webp '光速云(LightSpeed)')
 
-## 光速云(LightSpeed)官网注册地址（当前可用｜稳定高速｜真实测速）
+## 光速云(LightSpeed)VPN官网注册地址（当前可用｜稳定高速｜真实测速）
 
 **最便宜的订阅有8元 59g/月(年付)。**
 
-**点击购买👉👉👉** [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed)
+**点击购买👉👉👉** [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed)
 
 **当前可用的官方注册地址，稳定不跳转、不失效。**
 
-## 光速云(LightSpeed)是什么？适合哪些人使用（真实体验 + 优缺点）
+## 光速云(LightSpeed)VPN是什么？适合哪些人使用（真实体验 + 优缺点）
 
 **不做订阅阅后即焚!!放心使用**
 
@@ -27,7 +27,7 @@
 
 除此之外，还解锁了诸如**ChatGPT、Tiktok、NBA、WWE等热门应用**，提供更广泛的网络体验。拥有强大的执行力海外技术团队和实时在线客服团队，能够及时维护线路并解决在使用过程中遇到的问题，提供全方位的技术支持和服务保障。
 
-## 光速云(LightSpeed)价格与套餐对比（性价比分析｜新手怎么选）
+## 光速云(LightSpeed)VPN价格与套餐对比（性价比分析｜新手怎么选）
 
 **支付方式**  支付宝 微信支付 USD
 
@@ -37,18 +37,18 @@
 
 |  套餐类型  | 流量/月  | 月付 | 季付 | 半年付 | 年付  | 设备限制 |                                                       套餐购买                                                        |
 | :--------: | :------: | :--: | :--: | :----: | :---: | :------: | :-------------------------------------------------------------------------------------------------------------------: |
-| **轻量版** | **59G**  |  -   |  -   |   -    |  ¥99  |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
-| **极速版** | **110G** | ¥17  | ¥50  |  ¥90   | ¥160  |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
-| **流光版** | **220G** | ¥34  | ¥100 |  ¥180  | ¥320  |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
-| **量子版** | **450G** | ¥68  | ¥200 |  ¥375  | ¥667  |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
-| **无界版** | **900G** | ¥130 | ¥390 |  ¥702  | ¥1248 |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
+| **轻量版** | **59G**  |  -   |  -   |   -    |  ¥99  |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
+| **极速版** | **110G** | ¥17  | ¥50  |  ¥90   | ¥160  |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
+| **流光版** | **220G** | ¥34  | ¥100 |  ¥180  | ¥320  |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
+| **量子版** | **450G** | ¥68  | ¥200 |  ¥375  | ¥667  |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
+| **无界版** | **900G** | ¥130 | ¥390 |  ¥702  | ¥1248 |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
 
 |    套餐类型    | 流量(不限时) | 一次性费用 | 设备限制 |                                                       套餐购买                                                        |
 | :------------: | :----------: | :--------: | :------: | :-------------------------------------------------------------------------------------------------------------------: |
-| **不限时套餐** |  **1000G**   |    ¥680    |  无限制  | [光速云(LightSpeed)官网注册地址](https://itheo.top/lightspeed) |
+| **不限时套餐** |  **1000G**   |    ¥680    |  无限制  | [光速云(LightSpeed)VPN官网注册地址](https://itheo.top/lightspeed) |
 
 ## 光速云(LightSpeed)真实测速图（高峰期表现实测）
-[光速云(LightSpeed)真实测速图](https://doc.theojs.cn/serve/airport/lightspeed#%E5%85%89%E9%80%9F%E4%BA%91-lightspeed-%E7%9C%9F%E5%AE%9E%E6%B5%8B%E9%80%9F%E5%9B%BE-%E9%AB%98%E5%B3%B0%E6%9C%9F%E8%A1%A8%E7%8E%B0%E5%AE%9E%E6%B5%8B)
+[光速云(LightSpeed)真实测速图](https://doc.theojs.cn/serve/airport/lightspeed#光速云-lightspeed-vpn真实测速图-高峰期表现实测)
 
 ---
 
